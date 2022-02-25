@@ -1,1 +1,1 @@
-https://jyldyzbek1.github.io/IT-Stars/Itstars/index.html
+https://jyldyzbek1.github.io/IT-Stars/index.html
